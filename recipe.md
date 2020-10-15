@@ -1,0 +1,1 @@
+take milk , add cocoa powder,sugar and chocolate syrup,put some ice cubes.
